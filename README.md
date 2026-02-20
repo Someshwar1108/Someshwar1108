@@ -48,7 +48,7 @@ Passionate about converting **raw data into meaningful insights** that support i
 
 ### 🔗 Connect With Me
 
-- 💼 [LinkedIn](https://www.linkedin.com/in/YOUR_LINKEDIN_USERNAME/)
+- 💼 [LinkedIn](https://www.linkedin.com/in/someshwarsreeram/)
 - 📧 [someshwar110801@gmail.com](mailto:someshwar110801@gmail.com)
 
 ---
